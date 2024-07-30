@@ -30,6 +30,4 @@ We may update these Terms from time to time. Any changes will be posted on this 
 ## 10. Contact Information
 For any questions or concerns regarding these Terms and Conditions, please contact us at [eujeenhan@gmail.com](mailto:eujeenhan@gmail.com).
 
----
-
 _Last updated on 2024/07/30_
