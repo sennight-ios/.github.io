@@ -28,6 +28,6 @@ In no event shall the creators be liable for any indirect, incidental, special, 
 We may update these Terms from time to time. Any changes will be posted on this page with an updated effective date. Your continued use of the App after any changes constitutes acceptance of the new terms.
 
 ## 10. Contact Information
-For any questions or concerns regarding these Terms and Conditions, please contact us at [eujeenhan@gmail.com](mailto:eujeenhan@gmail.com).
+For any questions or concerns regarding these Terms and Conditions, please contact us at [Sennight Help](mailto:eujeenhan@gmail.com).
 
 _Last updated on 2024/07/30_
